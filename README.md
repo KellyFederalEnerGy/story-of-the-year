@@ -1,4 +1,4 @@
-# story
+# story of the year
 DOCUMENT ID: 77A-DELTA9
 DATE: August 25, 2025
 SUBJECT: Summary of Simulated National Security Scenarios and Procedural Discussions
